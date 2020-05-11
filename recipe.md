@@ -14,16 +14,16 @@ To serve
 
 Directions
 
-1. Fill & boil the kettle.
+1. Vul de waterkoker en zet deze aan.
 
-2. Fill a pot with approx 3L of water and bring to the boil.
+2. Vul een pan met ongeveer 3L water en breng deze aan de kook.
 
-3. Salt the water by adding 3 tbsp salt (most of the salt will go down the sink).
+3. Voeg 3 eetlepels zout toe aan de pan met water.
 
-4. Cook the pasta as per the pack instructions.
+4. Kook de pasta volgens de instructies op de verpakking.
 
-5. Remove the basil leaves from the stalk and add to the food processor or blender along with the garlic, salt, oil, almonds, lemon and blend till you like your pesto, blend for longer if you want a smooth pesto or just pulse for a chunky pesto.
+5. Verwijder de basilicum blaadjes van de tak en voeg deze samen in de blender met knoflook, zout, olie, amandelen, limoen en blend dit totdat de besto bevalt.
 
-6. Drain the pasta and add the pesto along with the tomatoes.
+6. Giet de pasta af en voeg deze samen met de pesto en de tomaten. 
 
-7. Taste and season. Serve with chilli flakes sprinkled on top.
+7. Proef en season en serveer het gerecht vervolgens met de chilli vlokken.
