@@ -1,16 +1,22 @@
+Ingrediënten:
 
-Ingredients
- 1. 300 g dried wholemeal penne pasta
-Ingredients for the pesto
- 1. 50 g fresh basil
- 2. 100 g almonds
- 3. 150 g olive oil
- 3. 2 cloves of garlic
- 4. ¾ tsp salt
- 5. Juice of 1/2 lemon
-To serve
- 1. 100 g sun blush tomato or cherry tomatoes
- 2. chilli flakes to serve
+300 gram gedroogde Penne Pasta
+
+Ingrediënten voor de Pesto:
+
+    50 gram Verse Basicilum.
+    100 gram Amandelen.
+    150 gram Olijf Olie.
+    2 Teentjes Knoflook.
+    Snufje Zout.
+    Sap van een halve Citroen.
+
+Voor te serveren:
+
+    100 Gram Zongedroogde tomaten of Cherry tomaatjes.
+    Chilie vlokken.
+
+
 
 Directions
 
